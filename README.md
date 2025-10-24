@@ -10,5 +10,6 @@
 𓈒 ‿‿   13 +  𓂃 trigger&sys catering   <img width="100" height="70" alt="2" src="https://github.com/user-attachments/assets/4e9020a1-61fc-41d0-869d-1cd077608fe9" />
 
 <p align="center">
-entirely sfw    awesome staff team   <img width="300" height="164" alt="3" src="https://github.com/user-attachments/assets/e3acef62-f85f-4b16-8f94-ce20d21138ff" />
+entirely sfw   awesome staff team   
+<img width="300" height="164" alt="3" src="https://github.com/user-attachments/assets/e3acef62-f85f-4b16-8f94-ce20d21138ff" />
 </p>
