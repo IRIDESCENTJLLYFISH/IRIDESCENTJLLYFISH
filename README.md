@@ -7,10 +7,14 @@
 </p>
 
 <p align="center">
-𓈒 ‿‿   13 +  𓂃 trigger&sys catering   <img width="100" height="70" alt="2" src="https://github.com/user-attachments/assets/4e9020a1-61fc-41d0-869d-1cd077608fe9" />
+𓈒 ‿‿   13 +  𓂃 trigger&sys catering   𓏼 ◞
 
 <p align="center">
-entirely sfw   awesome staff team   
+⌣⌣ 𓂅   entirely sfw    ›  awesome staff team  ︶
+</p>
+
+<p align="center">
+<img width="283" height="200" alt="200" src="https://github.com/user-attachments/assets/4e9020a1-61fc-41d0-869d-1cd077608fe9" />
 </p>
 
 <p align="center">
