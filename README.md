@@ -1,5 +1,5 @@
 <p align="center">
-<img width="650" height="49" alt="image" src="https://github.com/user-attachments/assets/095a6a86-c657-4244-a462-d55fc5a4ffa0" />
+<img width="500" height="49" alt="image" src="https://github.com/user-attachments/assets/095a6a86-c657-4244-a462-d55fc5a4ffa0" />
 </p>
 
 <p align="center">
@@ -11,5 +11,8 @@
 
 <p align="center">
 entirely sfw   awesome staff team   
-<img width="300" height="164" alt="3" src="https://github.com/user-attachments/assets/e3acef62-f85f-4b16-8f94-ce20d21138ff" />
+</p>
+
+<p align="center">
+<img width="500" height="164" alt="3" src="https://github.com/user-attachments/assets/e3acef62-f85f-4b16-8f94-ce20d21138ff" />
 </p>
