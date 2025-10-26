@@ -7,6 +7,10 @@
 </p>
 
 <p align="center">
+<img width="183" height="100" alt="200" src="https://github.com/user-attachments/assets/4e9020a1-61fc-41d0-869d-1cd077608fe9" />
+</p>
+
+<p align="center">
 𓈒 ‿‿   13 +  𓂃 trigger&sys catering   𓏼 ◞
 
 <p align="center">
@@ -14,8 +18,11 @@
 </p>
 
 <p align="center">
-<img width="183" height="100" alt="200" src="https://github.com/user-attachments/assets/4e9020a1-61fc-41d0-869d-1cd077608fe9" />
+  <a href="https://discord.gg/XXD7mmkKYu">
+    <img src="https://github.com/user-attachments/assets/e5b382bb-0a87-4042-8aa0-40cdb9fd8b2e" alt="Tommy root" width="100">
+  </a>　
 </p>
+
 
 <p align="center">
 <img width="500" height="164" alt="3" src="https://github.com/user-attachments/assets/e3acef62-f85f-4b16-8f94-ce20d21138ff" />
